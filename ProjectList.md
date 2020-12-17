@@ -81,7 +81,7 @@
 
 
 
-<img src="https://github.com/14teacher/Select-A-Topic/blob/main/VX.jpgg" alt="image-20201217100213706" style="zoom: 33%;" />
+<img src="https://github.com/14teacher/Select-A-Topic/blob/main/VX.jpg" alt="image-20201217100213706" style="zoom: 33%;" />
 
 
 
