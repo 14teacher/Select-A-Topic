@@ -79,5 +79,5 @@
 **需要以上课题或者需要软件定制的可以通过以下方式联系**
 
 **VX：codershiqing**
-
+**QQ ：3095138344**
 <img src="https://hbimg.huabanimg.com/97dc35b8002925e5910882909a385f367811de3c1e3d2-BmwW7V_fw658/format/webp" alt="WeChat" style="zoom: 33%;" />
